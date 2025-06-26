@@ -1,4 +1,4 @@
-![axolotl](https://www.worldwildlife.org/magazine/articles/meet-the-peter-pan-of-salamanders-the-axolotl)
+![capybara](https://www.pngall.com/capybara-png/download/123144/)
 
 
 ## Hi there 👋
